@@ -4,6 +4,7 @@ title:  "Getting to Budapest"
 date:   2016-07-14 21:27:48 +0100
 categories: jekyll update
 ---
+{% include ga-code.html %}
 
 # Arrival, accommodation and airplanes.
 So after a quick dash through Vienna airport (45 minutes on the ground!) we hopped on this puddle jumper: 
