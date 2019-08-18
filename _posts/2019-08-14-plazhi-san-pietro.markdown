@@ -4,7 +4,7 @@ title:  "Albania, the first few days"
 date:   2019-08-14 21:27:48 +0100
 categories: albania 
 ---
-
+{% include ga-code.html %}
 # Day one!
 
 We'd been looking forward to coming to Albania for a whole, ever since our trip to Pristinë in 2016; just one of the friendliest and most familiar feeling places we'd been. 
@@ -79,5 +79,5 @@ Once again, the sunsets were spectacular, particularly in the calm after the sto
 ![](/assets/img/albania/san-pietro-beach-umbrellas-night.jpg)
 
 Day three was similar, and better organised, as we knew what we were doing by then, and then it was a case of getting ready to head off the next day to Shkoder and beyond.
-
+``
 
