@@ -11,42 +11,73 @@ We'd been looking forward to coming to Albania for a whole, ever since our trip 
 
 After arriving several hours late last night, a beach day was called for. A breakfast of sausage, cheese (djathe), bread and cherry jam on toast from the hotel was a pretty great start. 
 
-The hotel is about 600m from the beach, a fairly leisurely 10 minute walk either through the woods, or down a gravel and stone track that's marked as a road on Google Maps. 
+The hotel is about 600m from the beach, a fairly leisurely 10 minute walk either through the woods, or down a gravel and stone track that's marked as a road on Google Maps, but at the end of the road, we found the lovely Chelsea Beach. 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#930bb8861bec4876b7df9d06603220e3)
+![](/assets/img/albania/san-pietro-chelsea-beach.jpg)
 
-Obviously, this being day one, we ignored our lovely host Emni's advice and ploughed on through the woods. Maria and J were wearing flipflops, so this was ill advised, and we took a sharp detour out to the road after a few minutes. 
+Obviously, this being day one, we ignored our lovely host Emni's advice and ploughed on through the woods. 
 
-[]!()
+![](/assets/img/albania/san-pietro-woods.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#23dd67b0efba402d9cf7c47af272fc01)
+Maria and J were wearing flipflops, so this was ill advised, and we took a sharp detour out to the road after a few minutes. 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#80f9ce6ca36f47ef94f973e8638caa84)
+![](/assets/img/albania/san-pietro-beach-road.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#3d5f8040fa72469ea46647456df7df91)
+We found it!  Amused that it's spelt in the English manner rather than Çelsi, which would probably be the Albanian spelling. 
+ 
+![](/assets/img/albania/san-pietro-maria-beach.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#b343cb79720b412ea39e3f92a647e7bc)
+The Adriatic coast is pretty uniformly lovely, and we set ourselves up on this section of the beach, which was billed by the hotel (and locals) as the _'Albanian'_ beach - a few hundred metres further along was the _'Italian'_ beach, with its notably better food.  The water was great (and warm!) wherever we were. 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#30a663ccde2e49c7ad13d3a660e1e371)
+![](/assets/img/albania/san-pietro-water-view.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#53d7baaa2f794f429740d0aeb7124637)
+After pottering about on the beach for a few hours (hiding in the shade in a restaurant at the peak UV point of the day, and from the 38 degree heat) we went back and changed, to come back out to the RON restaurant towards the back of the beach, and admire the sunsets. 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#7204d0e8cdfc4a748adce9391e0af048)
+![](/assets/img/albania/san-pietro-maria-dinner-1.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#7eb2ab155b0646d3aa8783a017c32054)
+![](/assets/img/albania/san-pietro-sunset.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#c5746399800a4824a5341aea982d9131)
+The mountainous terrain you can see on the right hand side of the picture here is the Cape of Rodon, where we'd considered staying when we were still going to hire a car.  Although the driving here's been relatively sedate, I was still glad
+that we had decided to not get our own car. 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#b757aecd0f784aecbfa3837ecf8cd253)
+![](/assets/img/albania/san-pietro-sunset-2.jpg)
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#6c0ced7d77604a49b429e7ba965ad66e)
+ For the week we wanted to get a rental, it was looking like 240 Euros, before petrol.  All of our transfers were a bit less, with the bonus of not having to navigate or manage 
+the Albanian roads, which require a certain... _dynamic_ driving style, even compared to Bosnia or other places in the Balkans.  
+Still miles better than Morocco, though.  
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#71a7e808bc7440d7ab990331166696f8)
+The transfers we arranged were: 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#18aeaa9961134203aaaaea8d761322a6)
+* Airport to San Pietro - 28 Euros 
+* San Pietro to Shkoder - 60 Euros 
+* Return transfers from Shkoder to Thethi - 120 Euros 
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#55483b7fa18a4a0895a9d59354e87bce)
+Schlepping back to the hotel meant a short (200m ish) trek through the woods, or walking along the side of the main road, 
+which while it wasn't busy was unpaved at the sides, so we opted for the slightly Blair Witch Woods.
 
-[]!(https://www.notion.so/7d873c8746d74c26ab39b9cce8a07536#616b1e79fdda454f82f4316f889fe312)
+![](/assets/img/albania/san-pietro-woods-night.jpg)
 
-[]!()
+On our second day at the beach the wind was up (and the temperature was down - a mere 26C!).  We had a lazy morning with everyone chilling out in the AC at the hotel, 
+before we went down - we mistimed it a bit, as it was getting quite stormy, and we had to bail from the beach in favour of hiding in the hotel from the 
+battering sand that was whipping across the beach. 
+
+![](/assets/img/albania/san-pietro-sandstorm-1.jpg)
+
+We tried a bit of interim shelter in the bar, but the barman quickly closed up shop when a couple of chairs went over and took 
+some tables with it.  You can just about make out the sand clouds whipping through the umbrellas on the beach here.
+
+![](/assets/img/albania/san-pietro-sandstorm-2.jpg)
+
+After an hour or so in the hotel, the wind died right down, and we headed back to the beach.  We ate at the same place
+for the the three nights we were here, as the food was good, and the staff very friendly; some of the other places on the beach 
+were pretty good for lunch, but limited menus meant we didn't want to go back for lunch. 
+
+![](/assets/img/albania/san-pietro-maria-dinner-2.jpg)
+
+Once again, the sunsets were spectacular, particularly in the calm after the storm. 
+
+![](/assets/img/albania/san-pietro-beach-umbrellas-night.jpg)
+
+Day three was similar, and better organised, as we knew what we were doing by then, and then it was a case of getting ready to head off the next day to Shkoder and beyond.
+
+
