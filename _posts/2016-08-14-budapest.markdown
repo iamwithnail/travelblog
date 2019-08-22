@@ -2,7 +2,7 @@
 layout: post
 title:  "Getting to Budapest"
 date:   2016-07-14 21:27:48 +0100
-categories: jekyll update
+categories: budapest
 ---
 {% include ga-code.html %}
 
