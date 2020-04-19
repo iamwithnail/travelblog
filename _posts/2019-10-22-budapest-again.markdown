@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Budapest again!"
-date:   2019-10-24 13:40:48 +0100
+date:   2019-10-22 18:40:48 +0100
 categories: budapest, hungary
 ---
 {% include ga-code.html %}
@@ -88,15 +88,21 @@ Cake!
 ![](/assets/img/budapest-2019/j-cheesecake-vajdahunyad.jpg)
 
 
-Coming back out of the park towards the top of Andrassy, you come by Hosok Ter, or Heroes Square, which has a 
+Coming back out of the park towards the top of Andrassy, you come by Hosok Ter, or Heroes Square, which has statues of the Seven Chieftans of the Magyars, and some other important historical 
+Hungarian leaders.  
 ![](/assets/img/budapest-2019/hosok-ter.jpg)
 
+Mum was very pleased to be getting a seat on the tram (I actually think this is the second day, by Gellert hill, but let's gloss over that.)
+
 ![](/assets/img/budapest-2019/tram-mum.jpg)
+
+In the evening we went to Byblos [about five minutes walk from the Apartment on Brody Sandor ](https://www.google.com/maps/place/Byblos+-+Fine+Lebanese+%26+Levantine+Cuisine/@47.4926367,19.0598911,16.08z/data=!4m5!3m4!1s0x4741ddbc7772a55d:0x87bd527f58be730b!8m2!3d47.494401!4d19.0588283).  
+The restaurant came highly recommended (via trip advisor, I think), and serves Lebanese food, it was absolutely splendid, and far too much 
+food for the four of us.  
 ![](/assets/img/budapest-2019/byblos-lebanese-feast.jpg)
+
+This is the relief of one of the buildings on a street perpendicular to Brody Sandor - remarkably, this beautiful building is a 
+High School - the Saint Steven Commercial Vocational High School. 
+
 ![](/assets/img/budapest-2019/relief-building.jpg)
-
-
-
-
-![](/assets/img/budapest-2019/breakfast-day-one.jpg)
 
