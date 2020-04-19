@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Budapest again!"
+title:  "Budapest days two and three"
 date:   2019-10-24 23:22:48 +0100
 categories: budapest, hungary
 ---
