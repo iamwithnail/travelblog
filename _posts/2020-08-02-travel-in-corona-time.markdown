@@ -1,12 +1,12 @@
 ---
 layout: post
-title:  "Travelling to Switzerland via France "
+title:  "Planning in a Pandemic"
 date:   2020-08-02 16:25:00 +0100
 categories: france, switzerland, 2020, coronavirus
 ---
 {% include ga-code.html %}
 
-## Planning and Travelling in a time of Corona 
+## Planning and Travelling in a public health crisis
 
 All of the posts that follow in the 2020 trip are noted on the basis that:  
 - we're extremely fortunate (and grateful) to be in a position where we can travel at all
@@ -32,4 +32,4 @@ flat on infection rates, and almost immediately after we booked Eurotunnel, it s
 Here's our overall route - to Switzerland in two reasonably laid back days, staying in private accomodation rather than hotels 
 and back via Bois-Le-Rois, again staying away on our own so we can work remotely for the rest of the month. 
 
-![](assets/img/switzerland-2020/routemap.png)
+![](/assets/img/switzerland-2020/routemap.png)
