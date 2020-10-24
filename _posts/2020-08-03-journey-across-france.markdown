@@ -43,7 +43,11 @@ and toll roads and heading south.
 
 ![](/assets/img/switzerland-2020/2020-08-02-motorway.jpg)
 
-Off at Calais, wrong turn, young guys from sangatte 
+![](/assets/img/switzerland-2020/2020-08-02-st-omer-street.jpg)
+![](/assets/img/switzerland-2020/2020-08-02-st-omer-m.jpg)
+![](/assets/img/switzerland-2020/2020-08-02-st-omer-j-c.jpg)
+![](/assets/img/switzerland-2020/2020-08-02-st-omer-theatre.jpg)
+
 
 Drive to Saint Omer for lunch - charcuterie and bacon salad, richest croque Monsieur  - saluf with about a kilo of cheese, omelette 
 
