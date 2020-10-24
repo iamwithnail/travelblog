@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Peckham to Pretty Mountains, by way of Champagne."
+title:  "Peckham to Pretty Mountains, by way of Champagne, pt 1"
 date:   2020-08-03 18:25:00 +0100
 categories: france, switzerland, 2020, coronavirus, eurotunnel, trains 
 ---
