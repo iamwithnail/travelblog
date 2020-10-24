@@ -7,19 +7,19 @@ categories: france, switzerland, 2020, coronavirus, eurotunnel, trains
 {% include ga-code.html %}
 
 
-Up early - woken by train works 
+Although we'd spent a lot of time the previous night packing, we were still up early to head to Folkestone for our 10:20.  Helpfully, with an alarm set for 5:30 I 
+still managed to get woken up even earlier by train works on the line by the flat.  Just as well, as it took us a lot longer to pack everything into the car and play tetris with 
+everything to get it all in.  Of particular concern were the bike wheels overlapping the number plate, which we ended up taking off and stashing in with J as we didn't fancy getting pulled over by some 
+enthusiastic Gendarme on the motorway outside Calais. 
 
-Packing and rushing around 
-
-Loading and bikes 
-We have a lot of stuff 
 
 ![](/assets/img/switzerland-2020/lots-of-stuff.jpg)
-This is a picture from the packing proess the previous night. 
+We're gonna need a bigger boat.  See that pipe sticking out of the window?  That's our portable aircon unit which we're taking to heatwave France because we are SMRT. 
  
-Driving down to Eurotunnel - car heavy and strange to steer 
+Driving down to Eurotunnel, the car was obviously very heavy, but notably for me, very strange to steer.  After a lot of driving, I came to the conclusion that the balance of the
+car was completely shot and moved really far to the back, which made the steering on the front feel very light and wooly.  This would be more of a problem later on! The journey down was very smooth (in spite of some recent car troubles), and as quiet as you'd expect at 8am on a Sunday morning. 
 
-The vibe in the Eurotunnel was somewhere between 28 Days Later and Boxing Day at the Debenhams sale.  Most things shut or roped 
+The vibe in the Eurotunnel terminal was somewhere between 28 Days Later and Boxing Day at the Debenhams sale.  Most things shut or roped 
 off, and enormous queues for the other bits - no-one should care that much about Starbucks' terrible coffee, so we content ourselves with an iced coffee from WH Smith, 
 and head off back to the car.  At least we're at the front of the queue having missed the earlier train. 
 
