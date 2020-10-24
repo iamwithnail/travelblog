@@ -43,16 +43,51 @@ and toll roads and heading south.
 
 ![](/assets/img/switzerland-2020/2020-08-02-motorway.jpg)
 
+As we were driving to Champagne,  and we'd been going since the early morning, we opted to take an early lunch in Saint Omer.  Oddly, my main reference point for the town was 
+that it was where Douglas Bader, the WWII RAF fighter pilot was shot down and captured by the Germans in 1941.  Sadly, there didn't seem to be any trace or note of that, although it's not likely 
+to be the sort of thing that most French citizens care about - thousands of pilots from both sides were shot down over the Hauts-de-France region during the course of the war. 
 ![](/assets/img/switzerland-2020/2020-08-02-st-omer-street.jpg)
+
+But it's a very pretty small town, only a population of around 15,000.  In spite of that, there were a number of cafes and restaurants, as is typically the case in most european towns and cities.  Being early August
+it was a beautiful day, and in line with Coronavirus worries, we opted to eat outside, at [Ril's](https://www.google.com/maps/place/Ril's/@50.7490728,2.249566,17z/data=!3m1!4b1!4m5!3m4!1s0x47dcf8af05946669:0x7fe6187fbdfca17f!8m2!3d50.7490728!4d2.25176).  
+The food here was plentiful and tasty, not the finest cuisine going but inexpensive and well-cooked.  A charcuterie and bacon salad (bacon/ham, delete depending on your descriptive preference here, it was more akin to Spanish Jambon than anything), the world's
+richest most decadent Croque Monsieur, which J could only eat about half of, and an omelette. 
+
 ![](/assets/img/switzerland-2020/2020-08-02-st-omer-m.jpg)
 ![](/assets/img/switzerland-2020/2020-08-02-st-omer-j-c.jpg)
+
 ![](/assets/img/switzerland-2020/2020-08-02-st-omer-theatre.jpg)
 
+After a jaunt to stretch our legs around the main square, with this imposing theatre, for such a small town, we swapped drivers and were off again. 
+![](/assets/img/switzerland-2020/2020-08-02-maria-driving-after-lunch.jpg)
 
-Drive to Saint Omer for lunch - charcuterie and bacon salad, richest croque Monsieur  - saluf with about a kilo of cheese, omelette 
+At another driving stop, the boy was keen to drive.  We opted to not start him on the motorway, though. 
 
-Drive and driver swap 
+![](/assets/img/switzerland-2020/2020-08-02-j-driver.jpg)
 
-Get to champagne - v pretty, nice apartment, better than the listing, half unpacking the car but just bolting the bikes to the frame 
+Say what you will about the toll motorway system in France, but the roads were fast, quiet (although it was Sunday) and well maintained, with rest and services every 10-15km.  We made good progress and arrived 
+in Champagne around 6pm.  We had a single night Airbnb and met our be-masked host, who let us in to the apartment, which was far better than the (rather nice) photos. 
 
-L'edito
+A quick freshen up (and a _serious_ stretch of the legs for me - sitting for 10 hours meant that my legs were very crampy, something that I wasn't prepared for or expecting) and dinner in the main square. 
+
+Along the way, we saw the beautiful _Église Collégiale Notre-Dame-en-Vaux_ one of the main attractions in the Marne region.
+![](/assets/img/switzerland-2020/2020-08-02-cathedral-notre-dame-champagne.jpg)
+Not to mention these guys on the river. 
+![](/assets/img/switzerland-2020/2020-08-02-champagne-swans.jpg)
+
+Unfortunately we didn't get in to the cluster (it being late on a Sunday evening and us leaving early the next day), which is a shame when the interior looks like this (Borrowed from wikimedia)
+![](https://en.wikipedia.org/wiki/Notre-Dame-en-Vaux#/media/File:Ch%C3%A2lons-en-Champagne,_%C3%89glise_Notre-Dame-en-Vaux_PM_14379.jpg)
+
+We dined at the Annexe restaurant in the main square, again, eating outside.  It was pretty unremarkable, in that I can't remember anything about it writing after the fact. 
+![](/assets/img/switzerland-2020/2020-08-02-champagne-in-champagne.jpg)
+But it did have very inexpensive local champagne!  
+
+![](/assets/img/switzerland-2020/2020-08-02-j-and-c-beer.jpg)
+And some very nice soft drinks. 
+
+The temperature dropped drastically after the sun ducked behind the town hall, and we were left wishing for warmer clothes.  Heading back to the apartment, we moved the car and opted to leave the bikes on the car, and just chain them to each other.  
+If someone wants the kiddo's bike (probably the most expensive of the three) then they'll have to take my chonky boi commuter bike and M's _very_ heavy Dutch bike as well.  Plus we could see it from the apartment, and somehow Chalons-en-Champagne doesn't seem like a crime hotspot. 
+![](/assets/img/switzerland-2020/2020-08-02-car-secure.jpg)
+
+Bon nuit. 
+
